@@ -15,8 +15,10 @@
 
 - 💞️ I’m looking to collaborate on...Zero Caliber 2 PVP and Campagin maps, avatars, and gun Projects. promoting gaming community safety, inclusivity, and advocacy. .
 
-- 📫 How to reach me... - Email: icescreamstudios2024@gmail.com
-  - Discord: I.C.E_Scream
+- 📫 How to reach me...
+- Email: icescreamstudios2024@gmail.com
+- Discord: I.C.E_Scream
+- https://www.facebook.com/ICEScream8575/
   - 
 - ♂️♀️ Pronouns:...She/Her/They
 - 
